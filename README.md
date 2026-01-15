@@ -1,2 +1,2 @@
 # Exo-3
-# édutions la science
+# étudions la science
